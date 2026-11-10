@@ -14,3 +14,9 @@ Pleuch ly wiolą dy ma wi, la wioląs ky ży my di, sifonei sęfoniii... N***Dyi
 ży mła mąn nąnjłi dą la melomani.
 ży tciu me fobi dą la DEZAGHMONII.
 ŻY WU ME NJŁI A LASASĘFONI O GHEKŁIEM!!! TIUĄ PAGH DEPII, SE KY ŻY SEEEMMM!!! ŻY WU ME NJŁI A LASASĘFONI E O BLASFEM!!! ŻAWU ŻYMYDIIIIIII TU SY KIII SEM
+
+https://www.youtube.com/watch?v=o36rbYK6v-o&list=RDo36rbYK6v-o&start_radio=1
+https://www.youtube.com/watch?v=o36rbYK6v-o&list=RDo36rbYK6v-o&start_radio=1
+https://www.youtube.com/watch?v=o36rbYK6v-o&list=RDo36rbYK6v-o&start_radio=1
+https://www.youtube.com/watch?v=o36rbYK6v-o&list=RDo36rbYK6v-o&start_radio=1
+https://www.youtube.com/watch?v=o36rbYK6v-o&list=RDo36rbYK6v-o&start_radio=1
