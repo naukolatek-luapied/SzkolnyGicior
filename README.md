@@ -10,7 +10,7 @@ KI GHĄĄĄĄŻŻYYY MĄĄĄN EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
 # *GHYYYNNEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEETCH!!!!*
 ŻY WU ME NJŁI A LASASĘFONI O GHEKŁIEM!!! TIUĄ PAGH DEPII, SE KY ŻY SEEEMMM!!! ŻY WU ME NJŁI A LASASĘFONI E O BLASFEM!!! ŻAWU ŻYMYDIIIIIII TU SY KIII SEM
 
-Pleuch ly wiolą dy ma wi, la wioląs ky ży my di, sifonei sęfoniii... N***Dyikąłseghtąą kąłseghtoo, ŻY ŻU SĄ TUSZY MA BOO, MĄĄ TALĄN SONY FOOOOO!!!!!***
+Pleuch ly wiolą dy ma wi, la wioląs ky ży my di, sifonei sęfoniii... N***Dyikąłseghtąą kąłseghtoo, ŻY ŻU SĄ TUSZY LY BOO, MĄĄ TALĄN SONY FOOOOO!!!!!***
 ży mła mąn nąnjłi dą la melomani.
-ży tta me fąbi dą la DEZAGHMONII.
+ży tciu me fobi dą la DEZAGHMONII.
 ŻY WU ME NJŁI A LASASĘFONI O GHEKŁIEM!!! TIUĄ PAGH DEPII, SE KY ŻY SEEEMMM!!! ŻY WU ME NJŁI A LASASĘFONI E O BLASFEM!!! ŻAWU ŻYMYDIIIIIII TU SY KIII SEM
